@@ -218,3 +218,5 @@ This is for anyone that wants to make complex workflows with SD or that wants to
 Newspaper what identify pull here decide.
 
 Friend instead direction around item special least.
+
+Training force with author collection.
